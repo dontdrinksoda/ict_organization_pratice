@@ -1,0 +1,1 @@
+# ict_organization_pratice
